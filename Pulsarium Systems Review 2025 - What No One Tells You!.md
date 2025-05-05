@@ -7,7 +7,7 @@ In this detailed Pulsarium Systems review, I’ll walk you through everything yo
 
 To ensure you always receive the latest official Pulsarium Systems link, this click takes you to a short intermediary page where you’ll find the final registration link.
 
-### [👉 Open Your Pulsarium Systems Account Now](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/51en.md)
+### [👉 Open Your Pulsarium Systems Account Now](https://github.com/Ramiro74Rice/Rectangle/blob/main/51en.md)
 ## Summary
 
 Here’s a quick snapshot of Pulsarium Systems:
