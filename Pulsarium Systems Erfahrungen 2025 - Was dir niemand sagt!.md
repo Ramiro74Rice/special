@@ -7,7 +7,7 @@ In diesem Artikel teile ich **meine Erfahrungen mit Pulsarium Systems** und gebe
 
 Damit ich dir stets den aktuellen und offiziellen Link zu Pulsarium Systems bereitstellen kann, führt dich dieser Klick auf eine kurze Zwischenseite. Dort findest du dann direkt den finalen Registrierungslink.
 
-### [🔥 Eröffne jetzt dein Pulsarium Systems Konto](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/51de.md)
+### [🔥 Eröffne jetzt dein Pulsarium Systems Konto](https://github.com/Ramiro74Rice/Rectangle/blob/main/51de.md)
 ## Zusammenfassung
 
 | Kriterium                   | Bewertung                          |
