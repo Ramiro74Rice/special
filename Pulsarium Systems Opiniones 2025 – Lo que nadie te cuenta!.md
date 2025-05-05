@@ -7,7 +7,7 @@ En este artículo, compartiré contigo una opinión detallada y objetiva sobre P
 
 Para garantizar que siempre recibas el enlace oficial más reciente de Pulsarium Systems, al hacer clic serás dirigido a una breve página intermedia donde encontrarás el enlace definitivo de registro.
 
-### [🔥 Abre tu cuenta de Pulsarium Systems ahora](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/51es.md)
+### [🔥 Abre tu cuenta de Pulsarium Systems ahora](https://github.com/Ramiro74Rice/Rectangle/blob/main/51es.md)
 ## Resumen
 
 | Aspecto                | Detalle                                  |
