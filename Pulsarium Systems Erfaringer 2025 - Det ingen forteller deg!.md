@@ -7,7 +7,7 @@ I denne Pulsarium Systems anmeldelsen vil jeg dele mine erfaringer og innsikter 
 
 For å sikre at du alltid får den nyeste offisielle Pulsarium Systems-lenken, vil dette klikket føre deg til en kort mellomside hvor du finner den endelige registreringslenken.
 
-### [🔥 Åpne din Pulsarium Systems konto nå](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/51no.md)
+### [🔥 Åpne din Pulsarium Systems konto nå](https://github.com/Ramiro74Rice/Rectangle/blob/main/51no.md)
 ## Sammendrag
 
 | **Punkt**                    | **Detaljer**                           |
