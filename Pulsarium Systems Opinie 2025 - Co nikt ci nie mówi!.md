@@ -7,7 +7,7 @@ W tym artykule podzielę się **moimi obserwacjami i doświadczeniami** związan
 
 Aby zawsze otrzymywać najnowszy oficjalny link Pulsarium Systems, po kliknięciu trafisz na krótką stronę pośrednią, na której znajdziesz ostateczny link rejestracyjny.
 
-### [🔥 Otwórz swoje konto na Pulsarium Systems teraz](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/51pl.md)
+### [🔥 Otwórz swoje konto na Pulsarium Systems teraz](https://github.com/Ramiro74Rice/Rectangle/blob/main/51pl.md)
 ## Podsumowanie
 
 | Aspekt               | Ocena                       |
