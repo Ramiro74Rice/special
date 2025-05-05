@@ -7,7 +7,7 @@ In deze review deel ik mijn inzichten en ervaringen met Pulsarium Systems. Ik be
 
 Om ervoor te zorgen dat je altijd de nieuwste officiële Pulsarium Systems link ontvangt, word je via deze klik doorgestuurd naar een korte tussenpagina waar je de definitieve registratielink vindt.
 
-### [🔥 Open nu je Pulsarium Systems account](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/51nl.md)
+### [🔥 Open nu je Pulsarium Systems account](https://github.com/Ramiro74Rice/Rectangle/blob/main/51nl.md)
 ## Overzicht
 
 Hier is een kort overzicht van Pulsarium Systems in een handig fact sheet:
