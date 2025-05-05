@@ -7,7 +7,7 @@ Neste artigo, vou compartilhar uma análise detalhada do Pulsarium Systems, expl
 
 Para garantir que recebas sempre o link oficial mais recente de Pulsarium Systems, este clique leva-te a uma breve página intermédia onde encontrarás o link final de inscrição.
 
-### [🔥 Abre a tua conta Pulsarium Systems agora](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/51pt.md)
+### [🔥 Abre a tua conta Pulsarium Systems agora](https://github.com/Ramiro74Rice/Rectangle/blob/main/51pt.md)
 ## Resumo
 
 | Aspecto                 | Detalhes                                  |
