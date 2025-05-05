@@ -7,7 +7,7 @@ Personalmente, ho voluto analizzare a fondo Pulsarium Systems per capire cosa la
 
 Per assicurarti di ricevere sempre l’ultimo link ufficiale di Pulsarium Systems, questo clic ti indirizza a una breve pagina intermedia dove troverai il link definitivo per la registrazione.
 
-### [👉 Inizia a fare trading su Pulsarium Systems oggi stesso](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/51it.md)
+### [👉 Inizia a fare trading su Pulsarium Systems oggi stesso](https://github.com/Ramiro74Rice/Rectangle/blob/main/51it.md)
 ## Riassunto
 
 | **Aspetto**               | **Dettagli**                                  |
